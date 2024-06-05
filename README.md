@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 <a href="https://www.instagram.com/refffyy_/" target="_blank">Instagram</a>, 
 <a href="https://www.linkedin.com/in/reffy-maulana-7736892ab/" target="_blank">LinkedIn</a> 
-- 😄 Pronouns: He/His/Him/Smuggled Bear
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: 1% Human, 99% Iced Tea
 
 <!---
